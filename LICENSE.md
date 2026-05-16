@@ -1,4 +1,4 @@
-# 
+# vip NFT Rarity Sniper for nft wash trading bot | flip-strategies & slippage-control offers the most advanced nft wash trading bot, with flip-strategies and slippage-control. Ideal
 
 
 
